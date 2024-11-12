@@ -35,3 +35,33 @@ practica 7
 ![image](https://github.com/user-attachments/assets/3d0223b2-5a8c-41db-b5c6-c2faaa9b741e)
 
 ![image](https://github.com/user-attachments/assets/3e55c3ac-067f-4d31-b0d0-624ecb8093cb)
+
+practica 8 
+![image](https://github.com/user-attachments/assets/cc752f99-f1b7-45eb-a3f1-c4a8d832cfa0)
+
+![image](https://github.com/user-attachments/assets/8990c1ad-0032-464f-bb94-1ee4e68788b6)
+
+practica 9
+![image](https://github.com/user-attachments/assets/adb73372-4915-4726-a525-b97e35bbab2a)
+
+![image](https://github.com/user-attachments/assets/4b4f1de0-496d-4cbf-8ce5-9dd9b5bf1696)
+
+practica 10
+![image](https://github.com/user-attachments/assets/5c163624-ed47-4752-84dd-023ce81664b4)
+
+![image](https://github.com/user-attachments/assets/87be8829-3cc9-4d21-bbcf-dce70c383fd1)
+
+practica 11
+![image](https://github.com/user-attachments/assets/b5bac498-3992-4da9-a55d-ad99d4201c4b)
+
+![image](https://github.com/user-attachments/assets/6d4704bb-090b-4c18-9894-9efcd523260a)
+
+practica 12
+![image](https://github.com/user-attachments/assets/1303fd70-553f-4301-a4b0-8ab6063b6f50)
+
+![image](https://github.com/user-attachments/assets/691f1610-d41e-42f5-963c-73d3ad492815)
+
+practica 13
+![image](https://github.com/user-attachments/assets/e06fdd01-7313-4c75-a6e2-b40ac17a9db8)
+
+![image](https://github.com/user-attachments/assets/7255cb8f-9e7e-42f6-b4cd-10cfdb1e00a9)
